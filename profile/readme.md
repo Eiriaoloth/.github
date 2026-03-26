@@ -3,3 +3,5 @@ Welcome to Avenoria, a lush and beautiful land scarred by fire-scorched earth an
 Eiriaoloth is a narrow valley surrounded by a loop of the mountains, with the East side visible to the sun. The Pillars are tall, rune-scarred posts sticking straight up out of the land. A secret cavern. A cunning dragon species. And finally, the Redeemer.
 
 Welcome to the valley of Eiriaoloth.
+
+[Eiriaoloth for sale](https://thesilverstone.github.io/page4)
