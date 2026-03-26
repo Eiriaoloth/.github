@@ -4,6 +4,3 @@ The question is, how long will that be?
 
 Eiriaoloth is a narrow valley surrounded by a loop of the mountains, with the East side visible to the sun. The Pillars are tall, rune-scarred posts sticking straight up out of the land.
 Welcome to the valley of Eiriaoloth.
-
-[Eiriaoloth for sale.](https://thesilverstone.github.io/page4)
-
